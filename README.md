@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @newwbiee001
 - 👀 I’m interested in developing business
 - 🌱 I’m currently learning Python and Linux
-- 💞️ I’m looking to collaborate on someone who can guide me..
+- 💞️ I’m looking to collaborate with someone who can guide me..
 - 📫 How to reach me TG: @cardlancer1 
 
 
